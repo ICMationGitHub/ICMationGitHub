@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ICMationGitHub
+- 16
+- Game Developer, Artist, FNF Modder, Beginner Composer, Modeler
